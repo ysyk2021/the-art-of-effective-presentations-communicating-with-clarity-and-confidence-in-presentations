@@ -1,4 +1,4 @@
-Chapter 3: Developing a Presentation Mindset: Setting Realistic Goals and Objectives
+Setting Realistic Goals and Objectives
 ====================================================================================
 
 Developing a presentation mindset involves setting realistic goals and objectives to ensure that presentations are effective and engaging. In this chapter, we will explore strategies for setting goals and objectives to help develop a successful presentation mindset.

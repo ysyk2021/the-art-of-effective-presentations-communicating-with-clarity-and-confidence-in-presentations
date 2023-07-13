@@ -1,4 +1,4 @@
-Chapter 8: Creating a Culture of Effective Presentations: Providing Training and Professional Development Opportunities
+Providing Training and Professional Development Opportunities
 =======================================================================================================================
 
 Providing training and professional development opportunities is critical for creating a culture of effective presentations. In this chapter, we will explore strategies for providing training and professional development opportunities, including developing training programs, offering coaching and feedback, and promoting ongoing learning.

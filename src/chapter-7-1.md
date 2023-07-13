@@ -1,4 +1,4 @@
-Chapter 7: Managing Resistance to Effective Presentations: Identifying Common Sources of Resistance to Presentations
+Identifying Common Sources of Resistance to Presentations
 ====================================================================================================================
 
 Resistance to effective presentations can come in many forms, from disengaged audiences to challenging questions. In this chapter, we will explore common sources of resistance to presentations and strategies for managing them.

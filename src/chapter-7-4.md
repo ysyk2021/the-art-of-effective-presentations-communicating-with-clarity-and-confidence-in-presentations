@@ -1,4 +1,4 @@
-Chapter 7: Managing Resistance to Effective Presentations: Fostering a Growth Mindset
+Fostering a Growth Mindset
 =====================================================================================
 
 Fostering a growth mindset can help individuals effectively manage resistance during presentations. In this chapter, we will explore the connection between a growth mindset and effective presentations and strategies for fostering a growth mindset.

@@ -1,4 +1,4 @@
-Chapter 4: Understanding the Power of Effective Presentations: Addressing Limiting Beliefs
+Addressing Limiting Beliefs
 ==========================================================================================
 
 Addressing limiting beliefs is crucial for understanding the power of effective presentations. In this chapter, we will explore what limiting beliefs are and how to address them.

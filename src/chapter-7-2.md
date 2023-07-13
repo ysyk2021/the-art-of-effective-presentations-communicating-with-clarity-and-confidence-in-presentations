@@ -1,4 +1,4 @@
-Chapter 7: Managing Resistance to Effective Presentations: Developing Strategies for Overcoming Resistance
+Developing Strategies for Overcoming Resistance
 ==========================================================================================================
 
 Managing resistance is a critical component of effective presentations. In this chapter, we will explore strategies for developing effective ways to overcome resistance during presentations.

@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Understanding the Importance of Effective Presentations](chapter-1-1.md)
   - [Common Misconceptions About Presentations](chapter-1-2.md)
   - [Benefits of Communicating With Clarity and Confidence](chapter-1-3.md)
@@ -49,8 +48,5 @@
   - [Reflection and Self-Evaluation](chapter-10-2.md)
   - [Continuous Learning and Improvement](chapter-10-3.md)
   - [Adapting to Changes in the Workplace](chapter-10-4.md)
-- [Chapter 11: Conclusion](chapter-11.md)
-  - [Recap of Key Strategies for Delivering Effective Presentations](chapter-11-1.md)
-  - [Final Thoughts and Advice](chapter-11-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

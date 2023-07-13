@@ -1,4 +1,4 @@
-Chapter 10: Measuring Results and Learning from Experience: Tracking Progress and Measuring Results
+Tracking Progress and Measuring Results
 ===================================================================================================
 
 Measuring results and learning from experience is critical for improving presentation skills over time. In this chapter, we will explore strategies for tracking progress, measuring results, and learning from experience to improve presentation skills.

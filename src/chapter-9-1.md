@@ -1,4 +1,4 @@
-Chapter 9: Leveraging Technology for Effective Presentations: Identifying Effective Presentation Technologies and Resources
+Identifying Effective Presentation Technologies and Resources
 ===========================================================================================================================
 
 Identifying effective presentation technologies and resources is critical for creating engaging and informative presentations. In this chapter, we will explore strategies for identifying effective presentation technologies and resources.

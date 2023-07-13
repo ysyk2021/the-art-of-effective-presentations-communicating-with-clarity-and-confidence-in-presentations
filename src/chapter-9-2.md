@@ -1,4 +1,4 @@
-Chapter 9: Leveraging Technology for Effective Presentations: Using Technology to Enhance Your Presentation Experience
+Using Technology to Enhance Your Presentation Experience
 ======================================================================================================================
 
 Technology has revolutionized the way we communicate, and presentations are no exception. In this chapter, we will explore how to leverage technology to enhance your presentation experience and deliver a more engaging and effective message.

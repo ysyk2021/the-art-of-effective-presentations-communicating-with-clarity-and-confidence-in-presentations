@@ -1,4 +1,4 @@
-Chapter 2: Defining Effective Presentations: Understanding the Science Behind Communication
+Understanding the Science Behind Communication
 ===========================================================================================
 
 Effective presentations are not just about sharing information -- they are also about understanding the science behind communication. Effective communication involves a complex interplay of verbal and nonverbal cues, cognitive processes, and social dynamics. In this chapter, we will explore the science behind effective communication and how it relates to delivering effective presentations.

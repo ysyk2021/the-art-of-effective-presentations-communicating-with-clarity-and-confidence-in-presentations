@@ -1,4 +1,4 @@
-Chapter 9: Leveraging Technology for Effective Presentations: Avoiding Information Overload
+Avoiding Information Overload
 ===========================================================================================
 
 Leveraging technology can enhance the effectiveness of presentations by providing new ways to engage and inform the audience. However, it can also lead to information overload and distract from the message being presented. In this chapter, we will explore strategies for leveraging technology for effective presentations while avoiding information overload.

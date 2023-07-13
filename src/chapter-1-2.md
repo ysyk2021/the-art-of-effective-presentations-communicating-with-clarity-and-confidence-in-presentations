@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Common Misconceptions About Presentations
+Common Misconceptions About Presentations
 ==================================================================
 
 Effective presentations are critical for communicating with clarity and confidence, but there are many misconceptions about what makes a presentation effective. In this chapter, we will explore common misconceptions about presentations and why they can be misleading.

@@ -1,4 +1,4 @@
-Chapter 3: Developing a Presentation Mindset: Techniques for Cultivating a Presentation Mindset
+Techniques for Cultivating a Presentation Mindset
 ===============================================================================================
 
 Cultivating a presentation mindset is essential for delivering effective presentations. In this chapter, we will explore techniques for cultivating a presentation mindset.

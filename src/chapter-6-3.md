@@ -1,4 +1,4 @@
-Chapter 6: Developing Your Presentation Skills: Utilizing Feedback and Coaching
+Utilizing Feedback and Coaching
 ===============================================================================
 
 Utilizing feedback and coaching is crucial for developing presentation skills. In this chapter, we will explore the benefits of feedback and coaching, and strategies for utilizing them effectively.

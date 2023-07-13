@@ -1,4 +1,4 @@
-Chapter 3: Developing a Presentation Mindset: Utilizing Positive Self-Talk and Visualization
+Utilizing Positive Self-Talk and Visualization
 ============================================================================================
 
 Developing a positive presentation mindset is essential for effective presentations. In this chapter, we will explore how to utilize positive self-talk and visualization to develop a presentation mindset.

@@ -1,4 +1,4 @@
-Chapter 8: Creating a Culture of Effective Presentations: Encouraging Proactive Presentation Across the Organization
+Encouraging Proactive Presentation Across the Organization
 ====================================================================================================================
 
 Creating a culture of effective presentations is critical for organizations to communicate their message clearly and achieve desired outcomes. In this chapter, we will explore strategies for encouraging proactive presentation across the organization, including setting standards, providing training opportunities, and fostering a supportive environment.

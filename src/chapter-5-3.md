@@ -1,4 +1,4 @@
-Chapter 5: Maximizing Your Presentation Skills: Creating Engaging Content
+Creating Engaging Content
 =========================================================================
 
 Creating engaging content is critical for delivering effective presentations. Engaging content involves selecting and organizing information in a way that captures and maintains the audience's attention throughout the presentation. In this chapter, we will explore strategies for maximizing your presentation skills by creating engaging content, including using a clear structure, incorporating visual aids, and telling stories.

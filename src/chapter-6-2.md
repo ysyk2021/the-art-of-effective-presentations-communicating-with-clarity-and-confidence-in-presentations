@@ -1,4 +1,4 @@
-Chapter 6: Developing Your Presentation Skills: Developing Strategies for Delivering Effective Presentations
+Developing Strategies for Delivering Effective Presentations
 ============================================================================================================
 
 Developing strategies for delivering effective presentations is crucial for maximizing presentation skills. In this chapter, we will explore strategies for developing effective presentations.

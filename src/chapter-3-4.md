@@ -1,4 +1,4 @@
-Chapter 3: Developing a Presentation Mindset: Developing Empathy and Compassion Through Presentations
+Developing Empathy and Compassion Through Presentations
 =====================================================================================================
 
 Developing empathy and compassion is an important aspect of effective presentations. In this chapter, we will explore strategies for developing empathy and compassion through presentations.

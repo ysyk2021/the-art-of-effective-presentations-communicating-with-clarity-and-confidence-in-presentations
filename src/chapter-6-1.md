@@ -1,4 +1,4 @@
-Chapter 6: Developing Your Presentation Skills: Understanding the Principles of Effective Communication
+Understanding the Principles of Effective Communication
 =======================================================================================================
 
 Understanding the principles of effective communication is crucial for developing presentation skills. In this chapter, we will explore the principles of effective communication.

@@ -1,4 +1,4 @@
-Chapter 5: Maximizing Your Presentation Skills: Finding Ways to Communicate Clearly and Confidently
+Finding Ways to Communicate Clearly and Confidently
 ===================================================================================================
 
 Communicating clearly and confidently is essential for maximizing presentation skills. In this chapter, we will explore strategies for finding ways to communicate clearly and confidently.

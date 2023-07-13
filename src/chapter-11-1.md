@@ -1,4 +1,4 @@
-Chapter 11: Conclusion: Recap of Key Strategies for Delivering Effective Presentations
+Recap of Key Strategies for Delivering Effective Presentations
 ======================================================================================
 
 Effective presentations are critical for communicating with clarity and confidence in a variety of settings. In this book, we have explored strategies for developing presentation skills, managing resistance to effective presentations, creating a culture of effective presentations, leveraging technology for effective presentations, and developing a presentation mindset. As we wrap up, let's recap the key strategies for delivering effective presentations.

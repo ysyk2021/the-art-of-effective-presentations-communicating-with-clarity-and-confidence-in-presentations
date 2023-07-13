@@ -1,4 +1,4 @@
-Chapter 2: Defining Effective Presentations: Assessing Your Personal Approach to Presentations
+Assessing Your Personal Approach to Presentations
 ==============================================================================================
 
 Assessing your personal approach to presentations is critical for delivering effective presentations. Effective presentations require not only good content, but also an engaging delivery style that connects with the audience. In this chapter, we will explore strategies for assessing your personal approach to presentations, including identifying strengths and weaknesses, getting feedback from others, and using self-reflection.

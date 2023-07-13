@@ -1,4 +1,4 @@
-Chapter 11: Conclusion: Final Thoughts and Advice
+Final Thoughts and Advice
 =================================================
 
 Effective presentations are critical for communicating with clarity and confidence in a variety of settings, from business meetings to academic conferences. In this book, we have explored strategies for developing presentation skills, managing resistance to effective presentations, creating a culture of effective presentations, and leveraging technology for effective presentations. As we wrap up, here are some final thoughts and advice.
