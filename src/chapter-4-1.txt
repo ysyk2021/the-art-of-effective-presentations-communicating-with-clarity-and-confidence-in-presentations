@@ -1,0 +1,1 @@
+for the book "the art of effective presentations communicating with clarity and confidence in presentations", write a chapter: "the benefits of focusing on effective presentations".  Use Markdown format. Use English.
