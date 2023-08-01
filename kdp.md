@@ -14,8 +14,6 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-Sure, here are 20 Amazon search keywords related to the book "The Art Of Effective Presentations: Communicating With Clarity And Confidence In Presentations":
-
 1. Public speaking
 2. Presentation skills
 3. Communication skills
