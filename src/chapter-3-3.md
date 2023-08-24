@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-===============================================
 
 In this chapter, we will explore the importance of setting realistic goals and objectives when preparing for presentations. By understanding how to define clear and attainable goals, you can effectively align your content, strategies, and outcomes for a successful presentation.
 

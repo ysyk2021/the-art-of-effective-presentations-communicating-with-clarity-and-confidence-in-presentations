@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-=====================================================================================================
 
 Leveraging technology can enhance the effectiveness of presentations by providing new ways to engage and inform the audience. However, it is important to remember that not all individuals have equal access to technology or may have different needs when it comes to accessing information. In this chapter, we will explore strategies for leveraging technology for effective presentations while fostering accessibility and inclusivity.
 

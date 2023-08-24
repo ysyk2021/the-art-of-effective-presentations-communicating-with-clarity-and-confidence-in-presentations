@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Effective Presentations
-============================================================
 
 Leveraging technology can greatly enhance the effectiveness of presentations. In this chapter, we will explore strategies for identifying effective presentation technologies and resources, using technology to enhance your presentation experience, fostering accessibility and inclusivity, and avoiding information overload.
 

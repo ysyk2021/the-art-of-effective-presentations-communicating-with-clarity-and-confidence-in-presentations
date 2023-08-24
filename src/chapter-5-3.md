@@ -1,5 +1,3 @@
-Creating Engaging Content
-==================================
 
 In this chapter, we will explore the art of creating engaging content for presentations. Engaging content captivates the audience, holds their attention, and ensures that your message is delivered effectively. By employing strategic techniques and incorporating interactive elements, presenters can elevate their presentations to new levels of impact and effectiveness.
 

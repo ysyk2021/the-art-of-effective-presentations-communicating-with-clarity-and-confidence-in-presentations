@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=======================================================
 
 In this chapter, we will explore the power of positive self-talk and visualization in enhancing your presentation skills. By harnessing the benefits of self-affirmation and mental imagery, you can boost your confidence, reduce anxiety, and improve your overall performance during presentations.
 

@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-========================================
 
 Receiving feedback and seeking coaching are critical components of improving your presentation skills. In this chapter, we will explore the importance of utilizing feedback and coaching to enhance your ability to communicate with clarity and confidence in presentations.
 

@@ -1,5 +1,3 @@
-Developing Empathy and Compassion through Presentations
-================================================================
 
 In this chapter, we will explore the significance of empathy and compassion in presentations and how presenters can cultivate these qualities to connect with their audience on a deeper level. By developing empathy and compassion, presenters can create a supportive and inclusive environment that fosters engagement, understanding, and meaningful connections.
 

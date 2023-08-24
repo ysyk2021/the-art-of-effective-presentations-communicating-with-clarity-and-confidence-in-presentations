@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-===================================
 
 In this chapter, we will explore the concept of a growth mindset and its significance in developing effective presentation skills. By adopting a growth mindset, you can enhance your learning, overcome challenges, and cultivate resilience in the face of setbacks. This chapter will provide strategies to foster a growth mindset and leverage its benefits in your presentation journey.
 

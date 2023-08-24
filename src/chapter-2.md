@@ -1,5 +1,3 @@
-Chapter 2: Defining Effective Presentations
-===========================================
 
 Defining effective presentations is critical for understanding what makes a presentation successful. In this chapter, we will provide an overview of effective presentations, discuss the science behind communication, and provide tips for assessing your personal approach to presentations.
 

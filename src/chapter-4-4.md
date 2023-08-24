@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-====================================
 
 In this chapter, we will explore the concept of limiting beliefs and discuss strategies to address and overcome them. Limiting beliefs can hinder our ability to deliver effective presentations with clarity and confidence. By understanding and challenging these beliefs, presenters can unlock their full potential and achieve greater success in their communication endeavors.
 

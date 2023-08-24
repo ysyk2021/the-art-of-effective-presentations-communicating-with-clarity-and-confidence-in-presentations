@@ -1,5 +1,3 @@
-Chapter 3: Developing a Presentation Mindset
-============================================
 
 Developing a presentation mindset is critical for delivering effective presentations. In this chapter, we will explore techniques for cultivating a presentation mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through presentations.
 

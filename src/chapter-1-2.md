@@ -1,5 +1,3 @@
-Common Misconceptions about Presentations
-==================================================
 
 In this chapter, we will address common misconceptions about presentations and debunk them with evidence-based insights. By dispelling these myths, you can develop a more accurate understanding of effective presentation practices and enhance your communication skills.
 
