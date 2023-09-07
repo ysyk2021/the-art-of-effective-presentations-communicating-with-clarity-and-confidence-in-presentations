@@ -8,3 +8,7 @@ One of the key themes throughout the book is the importance of understanding you
 Whether you're a novice presenter looking to improve your skills or an experienced speaker seeking new strategies for connecting with your audience, "The Art Of Effective Presentations" is an invaluable resource. With its practical advice, real-world examples, and emphasis on effective communication, this book is sure to help you deliver powerful and memorable presentations that leave a lasting impact.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
