@@ -1,5 +1,4 @@
-第章：跟踪进展和测量结果
-============
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 在《高效演示的艺术：在演示中清晰自信地交流》一书的这一章中，我们将探讨跟踪进展和测量结果的重要性，以评估您的演示效果。通过实施监控进展和评估演示影响的策略，您可以不断改善技巧，并实现期望的结果。
 
